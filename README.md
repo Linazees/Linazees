@@ -1,7 +1,8 @@
 # Привет, меня зовут Кристина!
 
 ---
-### [My CV]( https://drive.google.com/file/d/1M9rH6vW2P6gRCTu53hK2YtGf22EnYmgA/view?usp=sharing)
+### [My CV]([Полякова Кристина.pdf](https://github.com/user-attachments/files/27595220/default.pdf)
+ )
 ---
 
 ### 🧪 Обо мне
